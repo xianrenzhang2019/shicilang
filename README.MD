@@ -1,7 +1,7 @@
 
 # 10次郎   最新地址发布 
 
-## 导 航 永 久 域 名Http://10clang69.xyz/
+## 导 航 永 久 域 名Http://10clang99.xyz/
 
 ## ⭐️ 👉 访问地址① ：Http://10cilang2019.com
 
