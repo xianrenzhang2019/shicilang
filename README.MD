@@ -3,11 +3,11 @@
 
 ## 导 航 永 久 域 名Http://10clang99.xyz/
 
-## ⭐️ 👉 访问地址① ：Http://10cilang2019.com
+## ⭐️ 👉 访问地址① ：Http://10cilang1.com
 
-## ⭐️ 👉 访问地址② ：Http://5210cl.com
+## ⭐️ 👉 访问地址② ：Http://10cilang2019.com
 
-## ⭐️ 👉 访问地址③ ：Http://wo10cl.com
+## ⭐️ 👉 访问地址③ ：Http://5210cl.com
 
 ## ⭐️ 👉 备用导航 ：Http://10clang99.xyz/
 
