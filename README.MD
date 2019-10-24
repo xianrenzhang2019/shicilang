@@ -3,7 +3,7 @@
 
 ## 导 航 永 久 域 名Http://10clang99.xyz/
 
-## ⭐️ 👉 访问地址① ：Http://10cilang.xyz
+## ⭐️ 👉 访问地址① ：Http://10cilang2.com
 
 ## ⭐️ 👉 访问地址② ：Http://10cilang2019.com
 
